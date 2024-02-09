@@ -1,1 +1,1 @@
-# g-n-d-ng-s-
+# 1 gun dongusu
